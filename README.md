@@ -1,0 +1,2 @@
+# allprotectmodelo
+seguridad
